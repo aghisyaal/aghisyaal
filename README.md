@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @aghisyaal
 - 👀 I’m interested in Computer and Network
-- 📫 How to reach me, Email to : aghisyaalma@gmail.com, LinkedIn : Aghisya Alma Lambardy
+- 📫 How to reach me, Email to : aghisyaalma@gmail.com, LinkedIn : https://www.linkedin.com/in/aghisyaalm
 - 😄 Pronouns: She/her
 
 <!---
